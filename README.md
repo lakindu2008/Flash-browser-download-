@@ -1,7 +1,7 @@
 # Flash-browser-download-
 
                                                 download now😉
-https://median.co/share/yrnrdo#androidphone ✔
+https://mega.nz/file/Q3FnHAKT#Iv-Vr_Hm93NB5vcESOE4rfeqDXajTydHBfaZ7-4RN1s
 
 guidelines 
 
